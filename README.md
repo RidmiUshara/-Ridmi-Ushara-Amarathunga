@@ -9,9 +9,6 @@
 - 💬 Ask me about **Java,HTML,php**
 - 📫 How to reach me **amarathungaridmiushara@gmail.com**
 - ⚡ Fun fact **call me as Rid**
-
-
-
 ###
 
 <div align="center">
